@@ -5,7 +5,7 @@ A list of my favorite things
    *🧑
 *emojies
    *😒
-   *👨‍🦱
+   -🐈‍:
    *🤣
 
 In order these are my favorite flavors of ice cream:
